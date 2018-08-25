@@ -1,4 +1,0 @@
-# FullSizeFrame
-# FullSizeFrame
-# FullSizeFrame
-# FullSizeFrame
